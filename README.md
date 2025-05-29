@@ -1,5 +1,7 @@
 # Single-Member LLC vs Multi-Member LLC: Which Is Right?
 
+**Disclaimer: we earn commissions when you shop through the links below**
+
 When forming a Limited Liability Company (LLC), a key decision is whether to opt for a **Single-Member LLC** or a **Multi-Member LLC**.
 
 This choice impacts taxes, management, liability, and compliance, making it crucial for entrepreneurs to understand the differences.
